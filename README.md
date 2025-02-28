@@ -16,5 +16,5 @@ Welcome to **Forest Staking**, a professional blockchain infrastructure provider
 
 Join us in building a more secure, decentralized, and sustainable blockchain ecosystem. 🚀  
 
-📌 [Visit our website](#) | 📢 [Follow us on Twitter](#) | 💬 [Join our community](#)
+📌 [www.foreststaking.com](#) | 📢 [x.com/foreststaking](#) | 💬 [https://t.me/foreststaking](#)
 
